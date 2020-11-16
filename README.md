@@ -1,6 +1,6 @@
 ### Oh, you finaly awake. What you want to find on my page?
 ### I have no a some Hentai content
-### Just make your computer like Beep beep 
+### Just make your computer sound like Beep beep 
  ^^
 
 <!--
