@@ -1,10 +1,10 @@
 ### Oh, you finaly awake. What you want to find on my page?
-### I have no a some Hentai content
+### I have no a some Hentai content (But still 16+)
 ### Just make your computer sound like Beep beep 
 ###  ......
 ### You can communicate with me:
-### Telegarm: @Overwolf94
-### Instagram: @Overwolf94
+### Telegarm: @Overwolf94 
+### Instagram: @Overwolf94 
 ### Slack: dzelenskyi@stud.khpi.ucode-connect.study
 ### Steam: https://steeamcommunity.com/is/overwolf94/
 ### Discord: Overwolf94#3858
