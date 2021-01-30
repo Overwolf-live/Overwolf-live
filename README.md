@@ -6,7 +6,7 @@
 ### Telegarm: @Overwolf94 
 ### Instagram: @Overwolf94 
 ### Slack: dzelenskyi@stud.khpi.ucode-connect.study
-### Steam: https://steeamcommunity.com/is/overwolf94/
+### Steam: https://steamcommunity.com/id/overwolf94/
 ### Discord: Overwolf94#3858
 
 ### Or check my random trash
