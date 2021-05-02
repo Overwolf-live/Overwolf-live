@@ -1,6 +1,5 @@
 ### Oh, you finaly awake. What you want to find on my page?
 ### I have no a some Hentai content (But still 16+)
-### Just make your computer sound like Beep beep 
 ###  ......
 ### You can communicate with me:
 ### Telegarm: @Overwolf94 
