@@ -4,7 +4,6 @@
 ### You can communicate with me:
 ### Telegarm: @Overwolf94 
 ### Instagram: @Overwolf94 
-### Slack: dzelenskyi@stud.khpi.ucode-connect.study
 ### Steam: https://steamcommunity.com/id/overwolf94/
 ### Discord: Overwolf94#3858
 
